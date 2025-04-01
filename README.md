@@ -10,11 +10,15 @@ alexander@veretennikov.ru
 
 # Рекомендации
 
-## Рекомендация от OpenText / Dell EMC
+## Рекомендация от OpenText / Dell EMC, скриншот из LinkedIn 1
 
 ![Рекомендация от OpenText / Dell EMC](https://github.com/VeretennikovAlexander/AboutMe/blob/master/LinkedIn1.jpg)
 
+## Рекомендация от OpenText / Dell EMC, скриншот из LinkedIn 2
+
 ![Рекомендация от OpenText / Dell EMC](https://github.com/VeretennikovAlexander/AboutMe/blob/master/LinkedIn20200804.jpg)
+
+## Ссылка на пост VK
 
 https://vk.com/wall152325504_848
 
