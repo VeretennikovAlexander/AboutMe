@@ -14,6 +14,8 @@ alexander@veretennikov.ru
 
 ![Рекомендация от OpenText / Dell EMC](https://github.com/VeretennikovAlexander/AboutMe/blob/master/LinkedIn1.jpg)
 
+![Рекомендация от OpenText / Dell EMC](https://github.com/VeretennikovAlexander/AboutMe/blob/master/LinkedIn20200804.jpg)
+
 https://vk.com/wall152325504_848
 
 # Рецензирования для IEEE, отметки в профиле Web of Science
