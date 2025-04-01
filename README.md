@@ -64,19 +64,19 @@ https://damdid2024.frccsc.ru/en/committee_program_committee.html
 
 https://vk.com/wall152325504_1498
 
-# Шалбуздаг
+# Шалбуздаг (4 142 м)
 
 https://vk.com/wall152325504_1506
 
-# Ярыдаг
+# Ярыдаг (3 925 м) (был несколько раз)
 
 https://vk.com/wall152325504_1314
 
-# Базардюзю
+# Базардюзю (4 466 м)
 
 https://vk.com/wall152325504_1309
 
-# Сельды
+# Сельды (3 664 м)
 
 https://vk.com/wall152325504_1494
 
