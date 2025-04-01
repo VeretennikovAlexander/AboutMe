@@ -40,6 +40,24 @@ https://vk.com/wall152325504_848
 
 https://vk.com/wall152325504_1609
 
+## Участие в программном комитете конференции
+
+Участие в программном комитете международной конференции DAMDID.
+
+http://damdid.org/
+
+DAMDID 2022
+
+https://damdid2022.frccsc.ru/en/conference_contacts.html
+
+DAMDID 2023
+
+https://damdid2023.hse.ru/#committees
+
+DAMDID 2024
+
+https://damdid2024.frccsc.ru/en/committee_program_committee.html
+
 ## Некоторые заметки в VK
 
 # Интересная фотография
@@ -66,3 +84,12 @@ https://vk.com/wall152325504_1494
 
 https://vk.com/wall152325504_1520
 
+# Прочее
+
+https://vk.com/wall152325504_1558
+
+https://vk.com/wall152325504_1668
+
+https://vk.com/wall152325504_1634
+
+https://vk.com/wall152325504_1688
