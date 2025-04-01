@@ -1,6 +1,12 @@
-# Социальные сети
+# Социальные сети и контакты
 
 https://vk.com/veretennikov.alexander
+
+https://www.linkedin.com/in/alexander-veretennikov
+
+https://www.instagram.com/veretennikovab
+
+alexander@veretennikov.ru
 
 # Рекомендации
 
