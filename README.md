@@ -10,6 +10,8 @@ alexander@veretennikov.ru
 
 # Рекомендации
 
+## Рекомендация от OpenText / Dell EMC
+
 ![Рекомендация от OpenText / Dell EMC](https://github.com/VeretennikovAlexander/AboutMe/blob/master/LinkedIn1.jpg)
 
 https://vk.com/wall152325504_848
