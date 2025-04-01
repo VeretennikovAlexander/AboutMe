@@ -39,3 +39,30 @@ https://vk.com/wall152325504_848
 ![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE100.jpg)
 
 https://vk.com/wall152325504_1609
+
+## Некоторые заметки в VK
+
+# Интересная фотография
+
+https://vk.com/wall152325504_1498
+
+# Шалбуздаг
+
+https://vk.com/wall152325504_1506
+
+# Ярыдаг
+
+https://vk.com/wall152325504_1314
+
+# Базардюзю
+
+https://vk.com/wall152325504_1309
+
+# Сельды
+
+https://vk.com/wall152325504_1494
+
+# Горный поход по Тянь-Шаню, пик Иссык-Ата (4 376 метров)
+
+https://vk.com/wall152325504_1520
+
