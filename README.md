@@ -24,7 +24,11 @@ https://vk.com/wall152325504_848
 
 # Рецензирования для IEEE, отметки в профиле Web of Science
 
-100 IEEE Access
+111 рецензирований для IEEE Access в моем профиле Web of Science, круглое число, 2025.04).
+
+Всего 119:
+
+111 IEEE Access
 
 4 IEEE Transactions on Big Data
 
@@ -36,7 +40,7 @@ https://vk.com/wall152325504_848
 
 1 IEEE Transactions on Services Computing
 
-![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE100.jpg)
+![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE119.jpg)
 
 https://vk.com/wall152325504_1609
 
