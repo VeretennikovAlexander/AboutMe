@@ -107,4 +107,4 @@ https://vk.com/wall152325504_1688
 
 https://github.com/VeretennikovAlexander/CPP-Public/blob/master/Plan.md
 
-https://github.com/VeretennikovAlexander/OS-Public/blob/master/Questions/%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81%D1%8B%202024.txt
+https://github.com/VeretennikovAlexander/OS-Public/blob/master/Questions/Questions%202024.txt
