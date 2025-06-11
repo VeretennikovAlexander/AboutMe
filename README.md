@@ -62,6 +62,10 @@ DAMDID 2024
 
 https://damdid2024.frccsc.ru/en/committee_program_committee.html
 
+DAMDID 2025
+
+https://damdid2025.frccsc.ru/en/committee_program_committee.html
+
 ## Некоторые заметки в VK
 
 # Интересная фотография
@@ -88,7 +92,7 @@ https://vk.com/wall152325504_1494
 
 https://vk.com/wall152325504_1520
 
-# Прочее
+# Прочее (часть ссылок только для друзей VK)
 
 https://vk.com/wall152325504_1558
 
@@ -97,3 +101,10 @@ https://vk.com/wall152325504_1668
 https://vk.com/wall152325504_1634
 
 https://vk.com/wall152325504_1688
+
+
+# Заметки по некоторым курсам УрФУ
+
+https://github.com/VeretennikovAlexander/CPP-Public/blob/master/Plan.md
+
+https://github.com/VeretennikovAlexander/OS-Public/blob/master/Questions/%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81%D1%8B%202024.txt
