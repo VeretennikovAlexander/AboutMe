@@ -102,12 +102,12 @@ https://vk.com/wall152325504_1634
 
 https://vk.com/wall152325504_1688
 
-Темы дипломных работ 2024-2025.
-
-https://vk.com/wall152325504_1741
-
 # Заметки по некоторым курсам УрФУ
 
 https://github.com/VeretennikovAlexander/CPP-Public/blob/master/Plan.md
 
 https://github.com/VeretennikovAlexander/OS-Public/blob/master/Questions/Questions%202024.txt
+
+Темы дипломных работ 2024-2025.
+
+https://vk.com/wall152325504_1741
