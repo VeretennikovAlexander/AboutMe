@@ -6,6 +6,10 @@ https://www.linkedin.com/in/alexander-veretennikov
 
 https://www.instagram.com/veretennikovab
 
+Telegram-канал:
+
+https://t.me/UralDragon
+
 alexander@veretennikov.ru
 
 # Рекомендации
