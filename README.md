@@ -123,3 +123,7 @@ https://github.com/VeretennikovAlexander/OS-Public/blob/master/Questions/Questio
 Темы дипломных работ 2024-2025.
 
 https://vk.com/wall152325504_1741
+
+Благодарственное письмо из Екатеринбургской городской Думы, 2026.
+
+![Благодарственное письмо из Екатеринбургской городской Думы](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026LetterEKB.jpg)
