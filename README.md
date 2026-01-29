@@ -28,9 +28,9 @@ https://vk.com/wall152325504_848
 
 # Рецензирования для IEEE, отметки в профиле Web of Science
 
-Больше чем 150 рецензирований для журналов IEEE в моем профиле Web of Science, 2025.09.
+Больше чем 190 рецензирований для журналов IEEE в моем профиле Web of Science, 2026.01.
 
-146 IEEE Access
+187 IEEE Access
 
 https://ieeeaccess.ieee.org/
 
@@ -44,7 +44,7 @@ https://ieeeaccess.ieee.org/
 
 1 IEEE Transactions on Services Computing
 
-![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE154_2025_09_28.jpg)
+![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE195_2026_01_30.jpg)
 
 https://vk.com/wall152325504_1609
 
