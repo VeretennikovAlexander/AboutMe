@@ -70,7 +70,7 @@ DAMDID 2025
 
 https://damdid2025.frccsc.ru/en/committee_program_committee.html
 
-## Некоторые заметки в VK
+## Некоторые заметки в VK и Telegram
 
 # Интересная фотография
 
@@ -83,6 +83,8 @@ https://vk.com/wall152325504_1506
 # Ярыдаг (3 925 м) (был несколько раз)
 
 https://vk.com/wall152325504_1314
+
+https://t.me/UralDragon/20
 
 # Базардюзю (4 466 м)
 
@@ -100,9 +102,19 @@ https://vk.com/wall152325504_1520
 
 https://vk.com/wall152325504_1762
 
-# Эльбрус (5642 м), 2025
+https://t.me/UralDragon/10
+
+https://t.me/UralDragon/23
+
+https://t.me/UralDragon/24
+
+# Два восхождения на Эльбрус (5642 м), с 20 по 27 августа, 2025
 
 https://vk.com/wall152325504_1779
+
+https://t.me/UralDragon/8
+
+https://t.me/UralDragon/17
 
 # Прочее (часть ссылок только для друзей VK)
 
@@ -127,3 +139,5 @@ https://vk.com/wall152325504_1741
 Благодарственное письмо из Екатеринбургской городской Думы, 2026.
 
 ![Благодарственное письмо из Екатеринбургской городской Думы](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026LetterEKB.jpg)
+
+https://t.me/UralDragon/29
