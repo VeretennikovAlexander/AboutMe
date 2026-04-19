@@ -132,12 +132,29 @@ https://github.com/VeretennikovAlexander/CPP-Public/blob/master/Plan.md
 
 https://github.com/VeretennikovAlexander/OS-Public/blob/master/Questions/Questions%202024.txt
 
-Темы дипломных работ 2024-2025.
+# Темы дипломных работ 2024-2025.
 
 https://vk.com/wall152325504_1741
 
-Благодарственное письмо из Екатеринбургской городской Думы, 2026.
+# Благодарственное письмо из Екатеринбургской городской Думы, 2026.
 
 ![Благодарственное письмо из Екатеринбургской городской Думы](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026LetterEKB.jpg)
 
 https://t.me/UralDragon/29
+
+# Архитектура высоконагруженных систем, подготовка книги
+
+Участвовал в качестве профильного эксперта в подготовке книги:
+Архитектура высоконагруженных систем, 3-е издание, дополненное, Вадим Подольный
+(о чем присутствует комментарий на странице 14).
+Очень полезная, актуальная книга, рекомендую всем друзьям, коллегам.
+Рекомендую студентам УрФУ,
+чтобы получить представление о теме,
+алгоритмах и методах проектирования и разработки таких систем. Вышла в апреле 2026.
+
+![](https://github.com/VeretennikovAlexander/AboutMe/BookReview2026/blob/master/1.jpg "") ![](https://github.com/VeretennikovAlexander/AboutMe/BookReview2026/blob/master/2.jpg "")
+
+https://t.me/UralDragon/113
+
+https://vk.com/wall152325504_1927
+
