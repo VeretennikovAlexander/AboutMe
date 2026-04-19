@@ -152,7 +152,7 @@ https://t.me/UralDragon/29
 чтобы получить представление о теме,
 алгоритмах и методах проектирования и разработки таких систем. Вышла в апреле 2026.
 
-![](https://github.com/VeretennikovAlexander/AboutMe/BookReview2026/blob/master/1.jpg "") ![](https://github.com/VeretennikovAlexander/AboutMe/BookReview2026/blob/master/2.jpg "")
+![](https://github.com/VeretennikovAlexander/AboutMe/blob/master/BookReview2026/1.jpg "") ![](https://github.com/VeretennikovAlexander/AboutMe/blob/master/BookReview2026/2.jpg "")
 
 https://t.me/UralDragon/113
 
