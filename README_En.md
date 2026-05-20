@@ -28,9 +28,9 @@ https://vk.com/wall152325504_848
 
 # IEEE Review, Web of Science verified reviews
 
-More than 200 verified reviews in the Web Of Science profile W-5003-2019 for IEEE Access, IEEE Transactions on Big Data, 2026.02.
+250 verified reviews in the Web Of Science profile W-5003-2019 for IEEE Access, IEEE Transactions on Big Data, 2026.05.
 
-194 IEEE Access
+242 IEEE Access
 
 https://ieeeaccess.ieee.org/
 
@@ -44,7 +44,7 @@ https://ieeeaccess.ieee.org/
 
 1 IEEE Transactions on Services Computing
 
-![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE202_2026_02_14.jpg)
+![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE250_2026_05_17.jpg)
 
 https://vk.com/wall152325504_1609
 
