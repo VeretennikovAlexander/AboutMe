@@ -116,6 +116,20 @@ https://t.me/UralDragon/8
 
 https://t.me/UralDragon/17
 
+# Восхождение на Восточную вершину Эльбруса (5621 м), 10 июня, 2026
+
+https://vk.com/wall152325504_1949
+
+https://t.me/UralDragon/133
+
+# Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026.
+
+https://vk.com/wall152325504_1959
+
+https://t.me/UralDragon/149
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026TibetKailash.jpg)
+
 # Прочее (часть ссылок только для друзей VK)
 
 https://vk.com/wall152325504_1558
