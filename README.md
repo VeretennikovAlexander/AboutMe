@@ -124,6 +124,8 @@ https://t.me/UralDragon/133
 
 # Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026.
 
+https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2026_Tibet
+
 https://vk.com/wall152325504_1959
 
 https://t.me/UralDragon/149
