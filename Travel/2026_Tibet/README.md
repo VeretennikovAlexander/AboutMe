@@ -58,6 +58,22 @@ https://vk.ru/wall152325504_1964
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_1.jpg)
 
+# 2026_06_29. Считается, что важно пройти через специальные врата Ям Двар (Yam Dwar) символизирующие начало пути к перевалу Дролма Ла (5650 м)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_Yam_Dwar.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_Yam_Dwar_1.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_1.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_2.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_3.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_4.jpg)
+
 # 2026_06_24. Дворец Потала, резиденция Далай Ламы
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_24_Potala_Palace.jpg)
