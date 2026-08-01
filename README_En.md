@@ -104,6 +104,18 @@ https://vk.com/wall152325504_1762
 
 https://vk.com/wall152325504_1779
 
+# Elbrus. Eastern Peak (5621 m), 2026
+
+https://vk.com/wall152325504_1949
+
+https://t.me/UralDragon/133
+
+# Tibet, Kailash Kora 2026
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026TibetKailash.jpg)
+
+https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/README_En.md
+
 # Other (VK Friends)
 
 https://vk.com/wall152325504_1558
