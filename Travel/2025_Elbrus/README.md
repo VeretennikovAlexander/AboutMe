@@ -56,15 +56,15 @@ alexander@veretennikov.ru
 
 ![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_2.jpg)
 
-![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_3jpg)
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_3.jpg)
 
-![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_4jpg)
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_4.jpg)
 
-![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_5jpg)
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_5.jpg)
 
-![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_6jpg)
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_6.jpg)
 
-![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_7jpg)
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_7.jpg)
 
-![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_8jpg)
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_8.jpg)
 

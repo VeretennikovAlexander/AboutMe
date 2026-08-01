@@ -110,6 +110,8 @@ https://t.me/UralDragon/24
 
 # Два восхождения на Эльбрус (5642 м), с 20 по 27 августа, 2025
 
+https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2025_Elbrus
+
 https://vk.com/wall152325504_1779
 
 https://t.me/UralDragon/8
