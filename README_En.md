@@ -100,7 +100,9 @@ https://vk.com/wall152325504_1520
 
 https://vk.com/wall152325504_1762
 
-# Elbrus (5642 m), 2025
+# Elbrus (5642 m), 2025 (West Summit, Two ascents)
+
+https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/README_En.md
 
 https://vk.com/wall152325504_1779
 
