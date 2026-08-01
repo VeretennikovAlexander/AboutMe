@@ -68,3 +68,10 @@ alexander@veretennikov.ru
 
 ![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Cheget_8.jpg)
 
+# Водопад Девичьи косы (акклиматизационный выход)
+
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Waterfall.jpg)
+
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Waterfall_1.jpg)
+
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2025_Elbrus/2025_08_Elbrus_Waterfall_2.jpg)
