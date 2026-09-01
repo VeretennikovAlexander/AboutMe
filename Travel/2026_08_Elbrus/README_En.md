@@ -14,6 +14,10 @@ alexander@veretennikov.ru
 
 # Elbrus, august 2026 (the fourth ascent)
 
+On August 26, 2026, I made my fourth ascent to the summit of Elbrus, Europe's highest mountain.
+
+We stand at the summit with Chatur Tamang (nine Everest ascents, over 200 Elbrus ascents).
+
 ![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_08_Elbrus/2026_08_Elbrus.jpg)
 
 ![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_08_Elbrus/2026_08_Elbrus_1.jpg)
