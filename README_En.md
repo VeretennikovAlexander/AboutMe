@@ -118,6 +118,16 @@ https://t.me/UralDragon/133
 
 https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/README_En.md
 
+# Elbrus (5642 m), august 2026 (the fourth ascent)
+
+https://vk.ru/wall152325504_1977
+
+https://t.me/UralDragon/212
+
+https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2026_08_Elbrus
+
+https://max.ru/channel_UralDragon/AaBdl8IhOH8
+
 # Other (VK Friends)
 
 https://vk.com/wall152325504_1558

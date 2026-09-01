@@ -136,6 +136,16 @@ https://t.me/UralDragon/149
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026TibetKailash.jpg)
 
+# Четвертое восхождение на Эльбрус (5642 м), август, 2026
+
+https://vk.ru/wall152325504_1977
+
+https://t.me/UralDragon/212
+
+https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2026_08_Elbrus
+
+https://max.ru/channel_UralDragon/AaBdl8IhOH8
+
 # Прочее (часть ссылок только для друзей VK)
 
 https://vk.com/wall152325504_1558
