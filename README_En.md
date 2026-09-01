@@ -112,6 +112,8 @@ https://vk.com/wall152325504_1949
 
 https://t.me/UralDragon/133
 
+https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2026_06_Elbrus/README_En.md
+
 # Tibet, Kailash Kora 2026
 
 https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/README_En.md

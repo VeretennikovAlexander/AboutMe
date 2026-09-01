@@ -6,7 +6,7 @@ https://www.linkedin.com/in/alexander-veretennikov
 
 https://www.instagram.com/veretennikovab
 
-Telegram-канал:
+Telegram:
 
 https://t.me/UralDragon
 
