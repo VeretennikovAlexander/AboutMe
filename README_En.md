@@ -114,9 +114,19 @@ https://t.me/UralDragon/133
 
 # Tibet, Kailash Kora 2026
 
-![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026TibetKailash.jpg)
-
 https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/README_En.md
+
+https://vk.ru/wall152325504_1959
+
+https://vk.ru/wall152325504_1965
+
+https://vk.ru/wall152325504_1964
+
+https://vk.ru/wall152325504_1957
+
+https://t.me/UralDragon/149
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/2026TibetKailash.jpg)
 
 # Elbrus (5642 m), august 2026 (the fourth ascent)
 

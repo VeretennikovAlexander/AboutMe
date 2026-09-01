@@ -130,7 +130,13 @@ https://t.me/UralDragon/133
 
 https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2026_Tibet
 
-https://vk.com/wall152325504_1959
+https://vk.ru/wall152325504_1959
+
+https://vk.ru/wall152325504_1965
+
+https://vk.ru/wall152325504_1964
+
+https://vk.ru/wall152325504_1957
 
 https://t.me/UralDragon/149
 
