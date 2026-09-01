@@ -152,6 +152,8 @@ https://github.com/VeretennikovAlexander/AboutMe/tree/master/Travel/2026_08_Elbr
 
 https://max.ru/channel_UralDragon/AaBdl8IhOH8
 
+![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_08_Elbrus/2026_08_Elbrus.jpg)
+
 # Прочее (часть ссылок только для друзей VK)
 
 https://vk.com/wall152325504_1558
