@@ -12,6 +12,8 @@ https://t.me/UralDragon
 
 alexander@veretennikov.ru
 
+Только что создано: https://max.ru/channel_UralDragon
+
 # Рекомендации
 
 ## Рекомендация от OpenText / Dell EMC, скриншот из LinkedIn 1
