@@ -18,6 +18,12 @@ alexander@veretennikov.ru
 
 Стоим на вершине вместе с Чатуром Тамангом (9 восхождений на Эверест, более 200 на Эльбрус).
 
+https://vk.ru/wall152325504_1977
+
+https://t.me/UralDragon/212
+
+https://max.ru/channel_UralDragon/AaBdl8IhOH8
+
 ![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_08_Elbrus/2026_08_Elbrus.jpg)
 
 ![Elbrus 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_08_Elbrus/2026_08_Elbrus_1.jpg)
