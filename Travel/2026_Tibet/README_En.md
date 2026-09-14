@@ -66,6 +66,22 @@ alexander@veretennikov.ru
 
 ![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_25_Tibet.jpg)
 
+# 2026_07_02. Tibet
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_1.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_2.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_3.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_4.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_5.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_6.jpg)
+
 # Links
 
 https://t.me/UralDragon/149
@@ -75,3 +91,5 @@ https://t.me/UralDragon/144
 https://t.me/UralDragon/170
 
 https://t.me/UralDragon/165
+
+https://t.me/UralDragon/217

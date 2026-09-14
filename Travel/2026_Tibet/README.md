@@ -36,6 +36,8 @@ https://vk.ru/wall152325504_1964
 
 https://vk.ru/wall152325504_1965
 
+https://vk.ru/wall152325504_1988
+
 # 2026_06_30. Северная стена горы Кайлаш
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_30_Kailash_North.jpg)
@@ -92,6 +94,24 @@ https://vk.ru/wall152325504_1965
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_25_Tibet.jpg)
 
+# 2026_07_02. Тибет
+
+Тибет 2026. После завершение Коры вокруг Кайлаша мы также посетили Священные озера Ракшастал и Манасаровар, располагающиеся на высоте 4500+ м. Эти фотографии сделаны в один день. Около озера Манасаровар также находится пещера Падмасамбхавы (Гуру Ринпоче - Драгоценный Учитель), место медитации основателя тибетского буддизма. В которой можно погостить, также, как когда-то он
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_1.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_2.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_3.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_4.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_5.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_6.jpg)
+
 # Дополнительные ссылки
 
 https://t.me/UralDragon/149
@@ -101,3 +121,5 @@ https://t.me/UralDragon/144
 https://t.me/UralDragon/170
 
 https://t.me/UralDragon/165
+
+https://t.me/UralDragon/217
