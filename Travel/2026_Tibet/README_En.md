@@ -68,6 +68,10 @@ alexander@veretennikov.ru
 
 # 2026_07_02. Tibet
 
+Tibet 2026. After completing the Kailash Kora, we also visited the sacred lakes of Rakshastal and Manasarovar, situated at an altitude of over 4,500 meters.
+These photos were taken on the same day. Near Lake Manasarovar lies the cave of Padmasambhava (Guru Rinpoche—the Precious Master),
+the meditation site of the founder of Tibetan Buddhism—a place where one can spend time, just as he once did.
+
 ![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash.jpg)
 
 ![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_02_Kailash_1.jpg)
