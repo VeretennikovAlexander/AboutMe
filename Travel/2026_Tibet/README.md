@@ -62,6 +62,20 @@ https://vk.ru/wall152325504_1988
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_1.jpg)
 
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_2.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_3.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_4.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_5.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_6.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_7.jpg)
+
+![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_8.jpg)
+
 # 2026_06_29. Считается, что важно пройти через специальные врата Ям Двар (Yam Dwar) символизирующие начало пути к перевалу Дролма Ла (5650 м)
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_Yam_Dwar.jpg)

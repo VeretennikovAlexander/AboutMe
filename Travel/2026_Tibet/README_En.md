@@ -34,6 +34,18 @@ alexander@veretennikov.ru
 
 ![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_1.jpg)
 
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_2.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_3.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_4.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_5.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_6.jpg)
+
+![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_07_01_Kailash_Dolma_La_Pass_7.jpg)
+
 # 2026_06_29. Yam Dwar Gate.
 
 ![Tibet, Kailash Kora, June-July 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_29_Kailash_Yam_Dwar.jpg)
