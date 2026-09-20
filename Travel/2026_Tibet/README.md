@@ -38,6 +38,8 @@ https://vk.ru/wall152325504_1965
 
 https://vk.ru/wall152325504_1988
 
+https://vk.ru/wall152325504_1990
+
 # 2026_06_30. Северная стена горы Кайлаш
 
 ![Тибет, Кора - обход вокруг священной горы Кайлаш, июнь-июль 2026](https://github.com/VeretennikovAlexander/AboutMe/blob/master/Travel/2026_Tibet/2026_06_30_Kailash_North.jpg)
@@ -137,3 +139,5 @@ https://t.me/UralDragon/170
 https://t.me/UralDragon/165
 
 https://t.me/UralDragon/217
+
+https://t.me/UralDragon/224
