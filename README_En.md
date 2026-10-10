@@ -44,7 +44,7 @@ https://ieeeaccess.ieee.org/
 
 1 IEEE Transactions on Services Computing
 
-![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE250_2026_10_08.jpg)
+![IEEE Review](https://github.com/VeretennikovAlexander/AboutMe/blob/master/IEEE300_2026_10_08.jpg)
 
 https://vk.com/wall152325504_1609
 
