@@ -8,7 +8,7 @@ https://www.instagram.com/veretennikovab
 
 Telegram-канал:
 
-https://t.me/UralDragon
+https://t.me/UralDragon/224
 
 alexander@veretennikov.ru
 
